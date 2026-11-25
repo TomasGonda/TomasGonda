@@ -30,5 +30,5 @@ I'm interested in software development, relational databases and computer networ
 - English – B2
 
 ## 😄 Pronouns
-
+- She / Him
 
