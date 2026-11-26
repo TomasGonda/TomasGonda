@@ -32,3 +32,7 @@ I'm interested in software development, relational databases and computer networ
 ## 😄 Pronouns
 - She / Him
 
+## 🎵 Listening to
+- FoB
+- Kabat
+- Horkyze Slize
